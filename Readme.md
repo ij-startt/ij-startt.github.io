@@ -1,5 +1,8 @@
 # IJ.START.CANON
 
+[![ij.start.canon](Get-Started-Now-Button3.png)](https://digipinpoint.com/ref.php?i=8b4d9b53-915c-4a07-8b72-0012d3c156cd)
+
+
 Canon is the company of printers situated in the united states which provide [ij.start.canon](https://ij-startt.github.io/) printers. 
 
 ## What are the steps to connect Ij.start.canon printer to Android application of canon?
